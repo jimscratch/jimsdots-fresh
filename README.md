@@ -10,4 +10,4 @@
 
 ***
 
-Jimmy Briggs [jimmy.briggs@jimbrig.com](mailto:jimmy.briggs@jimbrig.com) | 2021
+Jimmy Briggs - [jimmy.briggs@jimbrig.com](mailto:jimmy.briggs@jimbrig.com) | 2021
